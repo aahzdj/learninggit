@@ -1,1 +1,1 @@
-你可真是個全能課王
+doki doki suki desu
