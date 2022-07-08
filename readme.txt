@@ -1,1 +1,1 @@
-Oi,my poor bot~~~
+好似喵
